@@ -1,1 +1,1 @@
-https://fest-dsce-in
+https://fest.dsce.in/
